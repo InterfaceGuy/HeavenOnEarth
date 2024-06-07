@@ -1,1 +1,3 @@
 # HeavenOnEarth
+
+Heaven on earth is the inevitable outcome or direction of humanity’s trajectory, an ongoing process of evolving into a love-based species. As humanity transmutes fear into love, it becomes entirely possible to manifest an enlightened civilization on earth. This civilization would serve the divine above all else, with everyone following their highest joy and excitement in every moment. In such a society, every member would dramatically enrich the experiences and relationships of all others, creating a harmonious and interconnected existence.
